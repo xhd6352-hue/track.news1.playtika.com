@@ -1,0 +1,2 @@
+# track.news1.playtika.com
+poiehsgvxbnckftlrfc
